@@ -355,7 +355,7 @@ Data Analytics · Business Intelligence
 
 - 📧 Email: abhishekchauhan2628@gmail.com
 - 🐙 GitHub: [@Abhishek-Chauhan2628](https://github.com/Abhishek-Chauhan2628)
-- 💼 LinkedIn: [@Abhishek Chauhan](https://linkedin.com/in/abhishek-chauhan-98b377223/)
+- 💼 LinkedIn: [@Abhishek Chauhan](https://linkedin.com/in/abhishek-chauhan-98b377223)
 
 ---
 
